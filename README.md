@@ -1,3 +1,6 @@
+![image alt](https://github.com/TusharRajput018/TusharRajput018/blob/8bc23fc5c048c5a4bda42ad1bbaae34fba87f5ac/profile%20banner.png)
+
+
 👋 Hi, I'm Tushar Rajput  
 AI/ML Student | Data Analytics | Financial Intelligence | Business Intelligence
 
